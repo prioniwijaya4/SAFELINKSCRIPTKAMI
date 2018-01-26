@@ -1,0 +1,2 @@
+# SAFELINKSCRIPTKAMI
+dwadaw
